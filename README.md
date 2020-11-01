@@ -41,7 +41,7 @@ If the above statement seems to broad and generalized with a negatively charged 
 
 This is why, as private individuals we must act in accordance to our necessity for self-preservation and exercise our right to protection from exploitation!
 
-## Implementing Project Blue Moon
+## Implementation
 So how can resource poor serfs and slaves rescue their dignity and basic human rights from being pillaged and plundered by cronies of a monarchy? Especially from an imperialist regime that seemingly has unlimited zeal, opportunity and resources to oppress world citizens? 
 
 We start with a declaration of freedom from the very concepts of imperialism and colonialism!
@@ -92,7 +92,7 @@ A counter surveillance method interfering with such a synthetic aperture based s
 ## Do consider supporting this author
 * * *
 <p align="center">
-<b>Please support my case towards justice for ethnic minorities, mmigrants and refugees through your kind donations</b>
+<b>Please support my case towards justice for ethnic minorities, migrants and refugees through your kind donations</b>
 </p>
 
 <p align="center">
